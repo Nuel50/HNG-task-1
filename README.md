@@ -2,3 +2,4 @@
 my name is emmanuel 
 A UI/UX designer from Akwaibom
 studying mechanical engineering in uniuyo
+also i love to have fun
